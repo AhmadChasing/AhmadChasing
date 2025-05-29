@@ -14,3 +14,6 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+Im aHmad SuLeimAn, welcome to my GiThUb repo
+
+i think i should update this latEr
